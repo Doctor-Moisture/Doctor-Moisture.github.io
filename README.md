@@ -1,4 +1,5 @@
 ## Spore Syringe
+![Sonny and Mariel high fiving.](https://media.discordapp.net/attachments/936637856087171142/1269025005547814982/image.png?ex=66b87262&is=66b720e2&hm=78b63b4fb2bec980f78dcb7c351e1cb6fc616b527d1e826dbd114b62c1b07b4b&=&format=webp&quality=lossless&width=1873&height=180)
 APE from [SporeWorks](https://sporeworks.com/Psilocybe-cubensis-Albino-Penis-Envy-APE-ver.-1.0-Spore-Syringe-Microscopy-Kit.html)
 ## Spore to Agar
 Time: 2-3 Weeks
